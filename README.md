@@ -9,5 +9,5 @@ This is an Undertale's "fan thing"! (⌐■_■)
 What if...
 
 
-This repository's creator **don't go to thier server's MediaWiki...**
+This repository's creator **don't go to his server's MediaWiki's Page createin' Page...**
 
