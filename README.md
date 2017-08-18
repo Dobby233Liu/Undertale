@@ -1,8 +1,9 @@
 # Undertale
-This is an Undertale's "fan thing"! (⌐■_■)
 <p>
-**Create by PapyrusWuzHere**
+This is an Undertale's "fan thing"! (⌐■_■)
 </p>
+**Create by PapyrusWuzHere**
+
 <p>
 What if...
 </p>
