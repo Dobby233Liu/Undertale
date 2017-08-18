@@ -3,7 +3,7 @@
 This is an Undertale's "fan thing"! (⌐■_■)
 </p>
 
-**Create by PapyrusWuzHere**
+**Create by @PapyrusWuzHere**
 
 
 What if...
