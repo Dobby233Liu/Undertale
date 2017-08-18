@@ -4,4 +4,4 @@ This is an Undertale "fanthing"! (⌐■_■)
 
 
 *What if...*
-The repo creater **don't go to thier server's MediaWiki...**
+This repository's creator **don't go to thier server's MediaWiki...**
