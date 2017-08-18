@@ -1,5 +1,5 @@
 # Undertale
-This is an Undertale "fanthing"! (⌐■_■)
+This is an Undertale's "fan thing"! (⌐■_■)
 **by PapyrusWuzHere**
 
 
