@@ -4,8 +4,8 @@ This is an Undertale's "fan thing"! (⌐■_■)
 **Create by PapyrusWuzHere**
 </p>
 <p>
-*What if...*
+What if...
 </p>
-<p>
+
 This repository's creator **don't go to thier server's MediaWiki...**
-</p>
+
